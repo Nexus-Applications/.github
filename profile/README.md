@@ -42,9 +42,8 @@ Site oficial: [nexusapplications.com.br](https://nexusapplications.com.br)
 # 🌐 Conecte-se com a Nexus
 
 🎮 Discord: **nexusapplications**
-📸 Instagram: **@nexusapplications**
+🎥 YouTube: **@nexusapplications**
 🎵 TikTok: **@nexusapplications**
-📲 Telegram: **@nexusapps**
 
 ---
 
